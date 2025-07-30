@@ -1,1 +1,0 @@
-# Wipro_Talent_Next
